@@ -8,3 +8,5 @@
 3. Anti-porn (Coming soon)
 
 ## Update frequency: 1 week (7days) or 3-4 days
+List are from well-curated sources
+
